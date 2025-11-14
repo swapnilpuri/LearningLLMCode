@@ -1,0 +1,1 @@
+The negative side, arguing against the motion that Modi is the best PM of India, is more convincing due to its comprehensive critique of the claimed achievements and its emphasis on the importance of equitable development, sustainable practices, and the upholding of democratic principles.
